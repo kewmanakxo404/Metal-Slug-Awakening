@@ -225,4 +225,4 @@ Metal Slug: Awakening is available as a complete free version, allowing you to e
 Don’t wait any longer! **Download Metal Slug: Awakening free for Windows** and dive into the action today!
 
 ---
-**Last updated:** 2026-10-05 22:58:29 UTC
+**Last updated:** 2026-10-06 02:41:20 UTC
